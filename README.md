@@ -1,0 +1,2 @@
+# ChrisCurse
+Motivated learner
